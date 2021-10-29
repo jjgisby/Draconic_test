@@ -1,4 +1,4 @@
-### Redragon K530 Draconic 60% Compact RGB Wireless Mechanical Keyboard ###
+### Redragon K530 Draconic Mechanical Keyboard ###
  
  
  
